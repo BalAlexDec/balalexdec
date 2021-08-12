@@ -5,7 +5,7 @@ Me llamo Alex Carrasco y aporto soluciones a las empresas para conseguir el las 
 Soy desollador web y ayudo a desollar proyectos a la empresas , desde aplicaciones web , esta creaciones de aplicaciones web.
 
 Especialidades:
-Desarrollo web Soporte técnico| Desarrollo de Apps y aplicaciones móviles| Ceo| Creative Design
+Desarrollo web Soporte técnico| Desarrollo de Apps y aplicaciones móviles | Ceo | Creative Design
 
 ▶ 🌱 ¿CON QUIÉNES HE TRABAJO?:
 He trabajado con múltiples proyectes personales, y con algunas instituciones de mi pueblo, con desarrollo de la sede del ajustamiento de Cardedeu.
